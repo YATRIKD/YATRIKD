@@ -19,7 +19,7 @@ Supporters filled all but the upper level of the arena, which seats 20,000 durin
 Trump promised a swift flurry of executive orders to undo actions taken by outgoing President Joe Biden. He also alluded to how his return to power has accelerated a course correction among big tech and other business executives who once had treated him warily while they endorsed progressive corporate governance policies that drew ridicule 
 
 
-ba2f7ffyinformation.ccba2f7f
+
 
 among his MAGA base. 
 
